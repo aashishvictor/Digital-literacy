@@ -56,3 +56,10 @@ While doing this project, I learned how important digital literacy is in daily l
 
 One important thing I realized is that even small mistakes online can cause problems, so being careful is very important.
 
+**Useful Links**
+Google Form: https://forms.gle/3PKeVkD4UTnyR5Mq7
+
+------------------------------------------------------------------------------------------------------------------------------
+
+**Final Note**
+This project helped me understand the digital world better. I will continue to improve my skills and use these platforms in the coming years.
